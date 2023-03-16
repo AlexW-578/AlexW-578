@@ -1,4 +1,4 @@
-### Hi my name is Alex
+### Hi, My name is Alex
 
 I like working on whatever comes to my mind at the time.
 
