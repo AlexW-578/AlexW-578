@@ -1,4 +1,4 @@
-I like working on whatever comes to my mind at the time.
+I like working on whatever comes to mind at the time.
 
 L2 Cyber Security Analyst
 
